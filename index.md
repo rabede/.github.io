@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Homework for Open HPI-course * Let’s Git *
