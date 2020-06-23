@@ -10,4 +10,4 @@ Dame Jane Morris Goodall DBE born Valerie Jane Morris-Goodall on 3 April 1934), 
 
 ## Quote
 
-* What you do makes a difference, and you have to decide what kind of difference you want to make. *
+*What you do makes a difference, and you have to decide what kind of difference you want to make.*
