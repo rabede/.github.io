@@ -7,3 +7,7 @@ Dame Jane Morris Goodall DBE born Valerie Jane Morris-Goodall on 3 April 1934), 
 * really inspiring woman
 * great scientist
 * makes a change
+
+## Quote
+
+* “What you do makes a difference, and you have to decide what kind of difference you want to make.” *
